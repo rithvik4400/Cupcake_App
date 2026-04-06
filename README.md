@@ -102,7 +102,7 @@ com.example.cupcake
 **Poka Rithvik Chowdary**
 📧 [rithvik4400@gmail.com](mailto:rithvik4400@gmail.com)
 🔗 GitHub: https://github.com/rithvik4400
-🔗 LinkedIn: https://www.linkedin.com/in/your-linkedin-id/
+🔗 LinkedIn:[ www.linkedin.com/in/poka-rithvik-chowdary-035bb2312](https://www.linkedin.com/in/poka-rithvik-chowdary-035bb2312/)
 
 ---
 
